@@ -1,1 +1,1 @@
-# uhh-smash-bros
+# Rivalry Club - How to Play
